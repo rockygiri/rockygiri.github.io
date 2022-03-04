@@ -1,1 +1,0 @@
-# rockygiri.github.io
